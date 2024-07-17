@@ -1,0 +1,1 @@
+PLACEHOLDER description of The Gauntlet Tourney structure
